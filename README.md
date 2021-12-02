@@ -1,1 +1,6 @@
 # chinnu
+qshwsvwqjdhqvdkqjh
+dwqjdhwqbdnwdjkwn
+wdwoqduehqbkdend
+d1w4d+8wd
+wdwodpijehkdnmed
